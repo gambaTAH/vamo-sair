@@ -1,1 +1,0 @@
-# vamo-sair
